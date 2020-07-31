@@ -10,3 +10,5 @@ Each family has different stories, I have jotted down many of them as a way to p
 - Narváez
 
 The first two families are from my father,  most of its members live in Guatemala. The remaining families are from my mother, the vast majority lives in Mexico
+
+The book is originally written in Spanish, thus most of the text will be in that language. A few things will be in English just for fun
