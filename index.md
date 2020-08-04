@@ -1,15 +1,15 @@
 # Index 
 
-## Rodríguez Family
-- Too many eyes at F1 Austin  
-- _Ya métete_ in CDMX
-- Taking a traffic cone for a ride
-- Ludwing's violin and its unexpected outcome
-- The feathers of a dachshund dog
+## Familia Rodríguez
+- _Too many eyes_ en F1 Austin
+- La célebre frase "ya métete" en CDMX
+- De cuando se llevó un cono de tráfico de paseo
+- El violín de Ludwing y su desenlace inesperado
+- Las plumas de un perro salchicha _dachshund_  
 
 ---
 
-## Lacape Family 
+## Familia Lacape
 - "Football Match" at _Las Lisas_ Beach
 - Crash in the middle of _Vista Hermosa_ Boulevard
 - Close encounter with a monkey in _Santiaguito_ Volcano
@@ -18,16 +18,17 @@
 
 ---
 
-## Ongay Family 
-- Pee Challenge at _Monterrico_
-- Christmas _Pozole_ and the mystery of its downfall
-- Beheading a turkey and the disaster it produced
-- The misconception of the "way" word in Las Vegas
-- Thiefs and their peculiar relationship with "tailed" appliances
+## Familia Ongay
+- Reto de Pipí en Monterrico
+- El pozole navideño y el misterio de su destrucción
+    * Mejorar título
+- Degollar a un pavo y el desastre que provocó en el patio
+- El malentendido de la palabra _way_ en Las Vegas
+- Sobre ladrones y la misteriosa relación que tienen con artefactos que poseen cola
 
 ---
 
-## Narváez Family
+## Familia Narváez
 - Taking the car out of the _corralito_
 - Intravenous coffee in the morning
 - Finding a _Navojoa_ Man in Panama City
