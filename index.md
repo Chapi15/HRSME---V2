@@ -1,4 +1,4 @@
-# Index 
+# Index
 
 ## Familia Rodríguez
 - _Too many eyes_ en F1 Austin
@@ -10,11 +10,11 @@
 ---
 
 ## Familia Lacape
-- "Football Match" at _Las Lisas_ Beach
-- Crash in the middle of _Vista Hermosa_ Boulevard
-- Close encounter with a monkey in _Santiaguito_ Volcano
-- About a rat and how it scared a young man
-- A conversation between a professor and his student regarding the design of the latter's stairs
+- Los "partidos de fútbol" en Las Lisas
+- Un choque en medio del Boulevard de Vista Hermosa
+- Un encuentro cercano del tercer tipo con un mono en el Volcán Santiaguito
+- Sobre una rata y de cómo esta termino asustando a un joven hombre
+- Un diálogo entre un estudiante de arquitectura y su profesor con respecto al diseño de unas escaleras
 
 ---
 
@@ -29,8 +29,8 @@
 ---
 
 ## Familia Narváez
-- Taking the car out of the _corralito_
-- Intravenous coffee in the morning
-- Finding a _Navojoa_ Man in Panama City
-- About a rat and how it got scared in the kitchen
-- The bite of a ferret in the circus
+- Sacando el carro del corralito
+- Café intravenoso en tempranas horas del día
+- Toparse con un hombre de Navojoa en la Ciudad de Panamá
+- Sobre una rata y de cómo se llevó un susto en la cocina
+- La mordida de un hurón y el desenlace que tuvo
