@@ -1,17 +1,17 @@
 ## Lacape Family
 ---
 
-### "Football Match" at _Las Lisas_ Beach
+### Los "partidos de fútbol" en Las Lisas
 ---
 
-### Crash in the middle of _Vista Hermosa_ Boulevard
+### Un choque en medio del Boulevard de Vista Hermosa
 ---
 
-### Close encounter with a monkey in _Santiaguito_ Volcano
+### Un encuentro cercano del tercer tipo con un mono en el Volcán Santiaguito
 ---
 
-### About a rat and how it scared a young man
+### Sobre una rata y de cómo esta termino asustando a un joven hombre
 ---
 
-### A conversation between a professor and his student regarding the design of the latter's stairs
+### Un diálogo entre un estudiante de arquitectura y su profesor con respecto al diseño de unas escaleras
 ---

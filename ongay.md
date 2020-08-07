@@ -1,17 +1,18 @@
-## Ongay Family
+## Familia Ongay
 ---
 
-### Pee Challenge at _Monterrico_
+### Los actos de una madre y la contestación que conlleva por parte de sus hijos 
+---
+Ay mamá
+
+### El pozole navideño y el misterio de su destrucción
 ---
 
-### Christmas _Pozole_ and the mystery of its downfall
+### Degollar a un pavo y el desastre que provocó en el patio
 ---
 
-### Beheading a turkey and the disaster it produced
+### El malentendido de la palabra _way_ en Las Vegas
 ---
 
-### The misconception of the "way" word in Las Vegas
----
-
-### Thiefs and their peculiar relationship with "tailed" appliances
+### Sobre ladrones y la misteriosa relación que tienen con artefactos que poseen cola
 ---

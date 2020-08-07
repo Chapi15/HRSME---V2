@@ -1,17 +1,17 @@
-## Narváez Family
+## Familia Narváez
 ---
 
-### Taking the car out of the _corralito_
+### Sacando el carro del corralito
 ---
 
-### Intravenous coffee in the morning
+### Café intravenoso en tempranas horas del día
 ---
 
-### Finding a _Navojoa_ Man in Panama City
+### Toparse con un hombre de Navojoa en la Ciudad de Panamá
 ---
 
-### About a rat and how it got scared in the kitchen
+### Sobre una rata y de cómo se llevó un susto en la cocina
 ---
 
-### The bite of a ferret in the circus
+### La mordida de un hurón y el desenlace que tuvo
 ---

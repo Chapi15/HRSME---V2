@@ -1,17 +1,17 @@
-## Rodríguez Family
+## Familia Rodríguez
 ---
 
-### Too many eyes at F1 Austin
+### _Too many eyes_ en F1 Austin
 ---
 
-### _Ya métete_ in CDMX
+### La célebre frase "ya métete" en CDMX
 ---
 
-### Taking a traffic cone for a ride
+### De la vez que un cono de tráfico se fue de paseo
 ---
 
-### Ludwing's violin and its unexpected outcome
+### El violín de Ludwing y su desenlace inesperado
 ---
 
-### The feathers of a dachshund dog
+### Las plumas de un perro salchicha _dachshund_ 
 ---
