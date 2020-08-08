@@ -1,1 +1,2 @@
 # Prólogo
+Desde hace mucho las historias han sido de las principales formas de transmitir conocimiento para el ser humano. En el caso de anécdotas o historias familiares ni se diga, es probable que cada familia tenga más de alguna narrativa particular que produzca risas entre la audiencia y el narrador. El propósito de esta obra es principalmente ese, producir risas en la persona que lo lea y de paso conocer un poco varias de las historias que poseen cuatro familias.

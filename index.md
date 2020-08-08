@@ -24,7 +24,7 @@
 - El pozole navideño y el misterio de su destrucción
     * Mejorar título
 - Degollar a un pavo y el desastre que provocó en el patio
-- El malentendido de la palabra _way_ en Las Vegas
+- El efecto retardado de "la intensidad del fútbol"
 - Sobre ladrones y la misteriosa relación que tienen con artefactos que poseen cola
 
 ---
@@ -32,6 +32,6 @@
 ## Familia Narváez
 - Sacando el carro del corralito
 - Café intravenoso en tempranas horas del día
-- Toparse con un hombre de Navojoa en la Ciudad de Panamá
+- La autoinvitación de una señora de apellido "Vargas" a Puerto Vallarta
 - Sobre una rata y de cómo se llevó un susto en la cocina
 - La mordida de un hurón y el desenlace que tuvo

@@ -11,7 +11,7 @@ Ay mamá
 ### Degollar a un pavo y el desastre que provocó en el patio
 ---
 
-### El malentendido de la palabra _way_ en Las Vegas
+### El efecto retardado de "la intensidad del fútbol"
 ---
 
 ### Sobre ladrones y la misteriosa relación que tienen con artefactos que poseen cola

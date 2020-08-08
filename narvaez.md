@@ -7,7 +7,7 @@
 ### Café intravenoso en tempranas horas del día
 ---
 
-### Toparse con un hombre de Navojoa en la Ciudad de Panamá
+### La autoinvitación de una señora de apellido "Vargas" a Puerto Vallarta
 ---
 
 ### Sobre una rata y de cómo se llevó un susto en la cocina
